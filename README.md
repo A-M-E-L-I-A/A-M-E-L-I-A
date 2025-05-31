@@ -3,4 +3,4 @@
 
 ![](https://komarev.com/ghpvc/?username=KillinGuysStealinEyes&color=ff69b4) 
 
-> ![](https://steam-current-game.vercel.app/api/?steamids=76561199607429436b)My CURRENT Steam activity
+> ![](https://steam-current-game.vercel.app/api/?steamids=76561199607429436)My CURRENT Steam activity
