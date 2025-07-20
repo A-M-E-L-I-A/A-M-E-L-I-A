@@ -5,4 +5,3 @@
 
 > ![](https://steam-current-game.vercel.app/api/?steamids=76561199607429436)My CURRENT Steam activity
 
-Want to join A Detroit Become Human hangout/roleplay Discord server?? We have a very welcoming community and some great staff, including me /silly! OCs are welcome to be roleplayed with!! https://discord.gg/a3kwQDas [13+]
