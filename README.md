@@ -6,4 +6,4 @@
 > ![](https://steam-current-game.vercel.app/api/?steamids=76561199607429436)My CURRENT Steam activity
 
 
-> My Instagram is linked ! I'll post art here and there for anyone who wnats to see! :3
+> My Instagram is linked ! I'll post art now and then for anyone who wnats to see! :3
