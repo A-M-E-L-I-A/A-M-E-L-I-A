@@ -7,4 +7,4 @@
 The main things I am posting right now are of M3GAN/AMELIA !! :D (Pls talk to me if you're a M3GAN fan,, I need more friends that like her/the movies SOBS)
 
 # Profile Picture:
-Alton Appleton; M3GAN 2.0 || Jemaine Clement
+AMELIA || M3GAN 2.0 || My art!! :3
