@@ -3,8 +3,8 @@
 
 > ![](https://steam-current-game.vercel.app/api/?steamids=76561199607429436)My CURRENT Steam activity
 
-# LISTOGRAPHY ADDED!
-Moved my list of games/shows/movies/socials over to Listography! Feel free to check it out!!
+# YUMESHIP DISCORD SERVER!! Sharing and Non-Saring friendly!!
+Are you a yumeshipper looking for a discord server?? CHECK OUT YUMEHQ! https://discord.gg/H6BJ9s7c !! I am a moderator of the server, everyone is super sweet and fun to talk to!
 
 # Profile Picture:
 AMELIA || M3GAN 2.0 
