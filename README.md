@@ -7,4 +7,4 @@
 Moved my list of games/shows/movies/socials over to Listography! Feel free to check it out!!
 
 # Profile Picture:
-AMELIA || M3GAN 2.0 || My art!! :3
+AMELIA || M3GAN 2.0 
