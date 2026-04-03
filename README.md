@@ -1,4 +1,4 @@
-# I am 18!!! Anyone/age can interact,,!
+# I am 18!!! -13 DNI, -16 IWC!
 ![](https://komarev.com/ghpvc/?username=KillinGuysStealinEyes&color=ff69b4) 
 
 > ![](https://steam-current-game.vercel.app/api/?steamids=76561199607429436)My CURRENT Steam activity
