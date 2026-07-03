@@ -3,8 +3,8 @@
 
 > ![](https://steam-current-game.vercel.app/api/?steamids=76561199607429436)My CURRENT Steam activity
 
-# ADDED MY F/O LIST ONTO MY STRAWPAGE! Romantic and Familial! :3
-https://rupertyumes.straw.page
+# TIS THE ARTFIGHT SEASON! Link to my ArtFight added!
+https://artfight.net/~Pr0jectAndr0id
 
 # Profile Picture:
 AMELIA || M3GAN 2.0 
